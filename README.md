@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @janjur
+- 👀 I’m interested in cs
+- 🌱 I’m currently learning how to dad
+- 💞️ I’m looking to collaborate on another kid
+- 📫 How to reach me... pls, don't
